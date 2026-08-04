@@ -66,6 +66,4 @@ Rafa Anargya
 
 Bachelor of Information Systems and Technology
 
-Universitas Negeri Jakarta
-
 2026
